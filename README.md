@@ -6,4 +6,4 @@ https://drive.google.com/file/d/1GKKPa8deQEC_LfQiAz6EbTylkyl_kPb9/view?usp=shari
 I would also like to thank my teammates :<br>
 1. Navaneeth P <br>
 2. Tharun K<br>
-3. Ishwar Mandal<br>.
+3. Ishwar Mandal<br>
